@@ -1,0 +1,2 @@
+# Dialectical-materialism-Historical-materialism
+辨证唯物主义与历史唯物主义中文资料内容站
